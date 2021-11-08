@@ -1,3 +1,0 @@
-# python
-
-#ravi teja andra
